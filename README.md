@@ -17,6 +17,10 @@
 - ⚡ Fun fact **I think my sense of humors sometime may disturbing but anyway, laugh bring more people together, right?**
 
 <h3 align="left">Connect with me:</h3>
+<p> Gmail : [khanhworktime](mailto:khanhworktime@gmail.com)</p>
+<p> Facebook : [Võ Chí Khánh](fb.com/chikhanh.duong)</p>
+<p> Linkedin : [Võ Chí Khánh](https://www.linkedin.com/in/ch%C3%AD-kh%C3%A1nh-v%C3%B5-253057231/)</p>
+<p> Dribbble : [Võ Chí Khánh (Krist Hoang)](https://dribbble.com/khanhworktime)</p>
 <p align="left">
 </p>
 
